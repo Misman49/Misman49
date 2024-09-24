@@ -1,0 +1,13 @@
+JMENUJI SE MICHAL
+ZAJÍMÁM SE: O HUDBU, HRAJI NA BICÍ, KYTARU,KLÁVESY ATD.,NOVÉ TECHNOLOGIE, KUTILSTVÍ, PŘÍRODA, SEX, SPOLEČNOST, PIVO
+UČÍM SE: HRU NA BICÍ, TVORBA HUDBY MIDI,PC, VAŘENÍ, VYCHÁZET S MÁLO PENĚZI
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+- 😄 Pronouns: ...
+ZAJÍMAVOST: 5 DĚTÍ
+
+<!---
+Misman49/Misman49 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
